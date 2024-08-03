@@ -1,1 +1,0 @@
-Tempat nya Mod Khusus Adiputro
